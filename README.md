@@ -1,7 +1,6 @@
 ### Hi there, I'm AumAim 👋
 
-<!--
-**Ditsayaporn/Ditsayaporn** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+### I'm a Business analytics, Data lover, and challlenger 
 
 Here are some ideas to get you started:
 
