@@ -3,7 +3,7 @@
 ### I'm a Business analytics, Data lover, and challlenger 
 
 - 🔭 I’m currently working on something cool!
-- 🌱 I’m currently learning everything
+- 🌱 I’m currently learning something new
 
 ### Connect with me:
 
