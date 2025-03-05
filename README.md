@@ -7,6 +7,5 @@
 
 ### Connect with me:
 
-➡️ https://www.facebook.com/aoomaimyy/
-
-
+➡️ Medium : https://medium.com/@ditsayapornkittinanthanachot
+➡️ LinkedIn : https://www.linkedin.com/in/ditsayaporn-kittinanthanachot/
